@@ -21,5 +21,5 @@ Para la Estación Espacial Internacional (ISS) a 400km sobre Morelia:
 - Periodo: 92.5 minutos
 
 ### 🧑‍🚀 Autor
-Krishi - Aspirante a NASA Space Academy
+Krishna Renee Mendoza Calderon - Aspirante a NASA Space Academy
 Morelia, Michoacán, México
